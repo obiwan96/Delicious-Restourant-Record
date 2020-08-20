@@ -58,6 +58,9 @@
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★★ 생면파스타  
 [개화](http://naver.me/FOsDrZQV) : ★★★★ 탕수육. 마음의 고향  
 [신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향2  
+[남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★★  
+[다리집](http://naver.me/F3IJBaae) : ★★★☆  
+[국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
 [평산옥](http://naver.me/x1X62IQ5) : ?  
 [화국반점](http://naver.me/GGuYkE83) : ? 신세계에 나온 그곳.
 ***
@@ -69,6 +72,7 @@
 [스시 호산](http://naver.me/FyNIL5DU) : ★★★★☆ 다 좋은데 양이 너무 많아요 쉐프님  
 [투웨이 버거](http://naver.me/xPtKHbZH) : ★★★★  
 [까치오 에 페페](http://naver.me/58hwRy7G) : ★★★★ 왜 졸업하니까 이런 식당이 생기는겁니까  
+[태평소](http://naver.me/FHZd29jm) : ★★★★  
 [잇마이타이](http://naver.me/xOf2tyPm) : ★★★☆  
 [우츠](http://naver.me/x1X62tCt) : ?  
 [심스 스모크하우스](http://naver.me/GSku2zyh): ?  
