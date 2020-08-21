@@ -57,6 +57,7 @@
 [고옥](http://naver.me/G853vi9z) : ★★★★☆ 히츠마부시 최고.  
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★★ 생면파스타  
 [개화](http://naver.me/FOsDrZQV) : ★★★★ 탕수육. 마음의 고향  
+[강가 해운대점](http://naver.me/I5jCwbn1) : ★★★★ 체인점이기도 하지만 정말 좋아하는 인도식  
 [신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향2  
 [남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★★  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
