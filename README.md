@@ -62,6 +62,7 @@
 [남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★★  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
+[차오란](http://naver.me/GT7q0W3o 아직 네이버 지도에 등록안된듯) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
 [볼피노](http://naver.me/xDY93i7o) : ★★ 너무 짜.  
 [평산옥](http://naver.me/x1X62IQ5) : ?  
 [화국반점](http://naver.me/GGuYkE83) : ? 신세계에 나온 그곳.
