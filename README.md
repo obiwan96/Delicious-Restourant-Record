@@ -62,6 +62,7 @@
 [남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★★  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
+[볼피노](http://naver.me/xDY93i7o) : ★★ 너무 짜.  
 [평산옥](http://naver.me/x1X62IQ5) : ?  
 [화국반점](http://naver.me/GGuYkE83) : ? 신세계에 나온 그곳.
 ***
