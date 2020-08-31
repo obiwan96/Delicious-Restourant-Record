@@ -55,12 +55,12 @@
 ## 부산
 [명물 횟집](http://naver.me/FTnPRLWq) : ★★★★★ 부산이 처음이면 여기가서 회백반 먹을것. 조금 비쌈.  
 [고옥](http://naver.me/G853vi9z) : ★★★★☆ 히츠마부시 최고.  
-[라꽁띠](http://naver.me/FGp6MOXO) : ★★★★ 생면파스타  
 [개화](http://naver.me/FOsDrZQV) : ★★★★ 탕수육. 마음의 고향  
 [강가 해운대점](http://naver.me/I5jCwbn1) : ★★★★ 체인점이기도 하지만 정말 좋아하는 인도식  
 [신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향2  
 [남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★★  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
+[라꽁띠](http://naver.me/FGp6MOXO) : ★★★☆ 생면파스타. 면만 보자면 볼피노가 더 맛있다.  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
 [차오란](http://naver.me/GT7q0W3o 아직 네이버 지도에 등록안된듯) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
 [볼피노](http://naver.me/xDY93i7o) : ★★ 너무 짜.  
