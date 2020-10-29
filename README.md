@@ -93,5 +93,5 @@ __인천__ [534라비아](http://naver.me/xRVnvmBN) : ?
 __도쿄__ [다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 쉐프님이 연세가 많으신데 제발 오래 오래 하셨으면 좋겠다. 정말 친절하게 설명 잘해주심  
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
-__런던__ [Alain Ducasse at The Dorchester] (https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
+__런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
 ***
