@@ -59,15 +59,16 @@
 [고옥](http://naver.me/G853vi9z) : ★★★★☆ 히츠마부시 최고.  
 [개화](http://naver.me/FOsDrZQV) : ★★★★ 탕수육. 마음의 고향  
 [강가 해운대점](http://naver.me/I5jCwbn1) : ★★★★ 체인점이기도 하지만 정말 좋아하는 인도식  
-[신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향2  
-[남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★★  
+[신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향  
+[남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★☆  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★☆ 생면파스타. 면만 보자면 볼피노가 더 맛있다.  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
 [차오란](http://naver.me/GT7q0W3o 아직 네이버 지도에 등록안된듯) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
+[로우앤슬로우 해운대점](http://naver.me/IFwvg6E9) : ★★☆ 정말 담백하긴 한데 양갈비 이외엔 특별하진 않았다. 양은 또 너무 많아.  
 [볼피노](http://naver.me/xDY93i7o) : ★★ 너무 짜.  
 [평산옥](http://naver.me/x1X62IQ5) : ?  
-[화국반점](http://naver.me/GGuYkE83) : ? 신세계에 나온 그곳.
+[화국반점](http://naver.me/GGuYkE83) : ? 신세계에 나온 그곳. 
 ***
 
 ## 대전
@@ -89,4 +90,8 @@ __경주__ [경주반점](http://naver.me/5YnQZSUT) : ? 수현누나의 원픽
 __대구__ [반고개 무침회 골목](http://naver.me/xBDrdeAI) : ★★★★☆ 의성, 푸른회 두 곳 가봤는데 이 거리는 어딜가든 맛있는듯. 넙적만두에 싸먹은 후 밥시켜서 비벼먹을것.  
 __대구__ [대쿠이](http://naver.me/5k3o0dMr) : ?  
 __인천__ [534라비아](http://naver.me/xRVnvmBN) : ?  
+__도쿄__ [다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 쉐프님이 연세가 많으신데 제발 오래 오래 하셨으면 좋겠다. 정말 친절하게 설명 잘해주심  
+__라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
+__런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
+__런던__ [Alain Ducasse at The Dorchester] (https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
 ***
