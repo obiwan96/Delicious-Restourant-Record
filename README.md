@@ -67,7 +67,7 @@
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★☆ 생면파스타. 면만 보자면 볼피노가 더 맛있다.  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
-[차오란](http://naver.me/GT7q0W3o 아직 네이버 지도에 등록안된듯) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
+[차오란](http://naver.me/GLK2q4pk) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
 [로우앤슬로우 해운대점](http://naver.me/IFwvg6E9) : ★★☆ 정말 담백하긴 한데 양갈비 이외엔 특별하진 않았다. 양은 또 너무 많아.  
 [볼피노](http://naver.me/xDY93i7o) : ★★ 너무 짜.  
 [평산옥](http://naver.me/x1X62IQ5) : ?  
