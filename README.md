@@ -83,6 +83,7 @@
 [경성 양꼬치](http://naver.me/Gom39bER) : ★★★★☆ 양꼬치,지삼선+하얼빈.  
 [스시 호산](http://naver.me/FyNIL5DU) : ★★★★☆ 다 좋은데 양이 너무 많아요 쉐프님  
 [투웨이 버거](http://naver.me/xPtKHbZH) : ★★★★  
+[성심당](http://naver.me/FXZHFgQh) : ★★★★ 성심당은 이제 튀소가 아니라 브리치즈샌드위치다  
 ~~[까치오 에 페페](http://naver.me/58hwRy7G) : ★★★★ 왜 졸업하니까 이런 식당이 생기는겁니까~~  
 [태평소](http://naver.me/FHZd29jm) : ★★★★  
 [헤이마오차이](http://naver.me/F7C2Jcx5) : ★★★★ 중국의 유명 체인이라 해서 우리나라에 많은 줄 알았는데 대전에 딱 한 곳 있는줄 몰랐다. 맑은 마라탕을 맛볼 수 있는 좋은 곳   
