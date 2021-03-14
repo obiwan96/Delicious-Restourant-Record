@@ -5,14 +5,14 @@
 ★★★★ : 여건이 된다면 자주 먹고싶음  
 ★★★★★ : 해당 지역 방문시 들르는 것을 추천  
 ☆ : 반별  
-? : 가보고 싶음  
+? : Wanna go  
 ~~취소선~~ : 폐업  
 
 ---
 
 ## 포항
+[아오미](https://map.naver.com/v5/entry/place/1130083369?c=14396474.7646003,4301593.4931836,16,0,0,0,dh) : ★★★★★ 지방에 이런 스시가 있단 건 축복. 3만원으로 행복해지는 가장 쉬운 방법  
 [애니시](http://naver.me/xRVr4Tti) : ★★★★☆ 와 여기 진짜 효자로 이사 와주시면 매일 갈자신있는데 식사부터 디저트, 음료까지 취저. 나또 소바가 제일 맛있는듯.  
-[아오미](https://map.naver.com/v5/entry/place/1130083369?c=14396474.7646003,4301593.4931836,16,0,0,0,dh) : ★★★★☆ 지방에 이런 스시가 있단 건 축복. 잘먹으면 더주심. 사장님 오래 오래 장사하세요  
 [이태리 파스타](https://map.naver.com/v5/entry/place/1542397016?c=14397117.3133693,4301678.8876762,15,0,0,0,dh) : ★★★★ 라구 알라 파스타  
 [박신우 제면소](https://map.naver.com/v5/entry/place/1803011937?c=14396388.7729435,4301356.4189631,15,0,0,0,dh) : ★★★★ 메밀로 우동은 신선했다  
 [상해교자](http://naver.me/5izc3kJy) : ★★★★ 지방에서 보기 힘든 훌륭한 딤섬집. 시국때문에 포장만 2번해먹어봤는데 시국 끝나면 꼭 가서 먹고 싶다.  
@@ -20,14 +20,18 @@
 [레벤 꼬고방](https://store.naver.com/restaurants/detail?id=15070537) : ★★★★ 마늘 치킨  
 [베라보](http://naver.me/IgtgWqMH) : ★★★☆ 매번 바뀌는 특선이 묘미  
 [포항아구탕](http://naver.me/5JJshbxJ) : ★★★☆  
+[스쿱당](http://naver.me/5KZ8Luv1) : ★★★ 명성만 많이 들었지 가본건 처음인데 비주얼때문에 유명한건가 싶다. 지극히 평범한 맛이어서 실망  
+[Yellow Dragon Curry](http://naver.me/GjRdL9AC) : ?  
 [포항특미물회](http://naver.me/5Vud2Hju) : ?  
 [오막골](http://naver.me/xkjzHBYn) : ?  
+[스시가](http://naver.me/GUvLFajh) : ?  
 ***
 
 ## 서울
 [다운타우너](http://naver.me/FRY9P7gG) : ★★★★★ 아보카도 버거, 과카몰리 후라이.  
 [영천영화](http://naver.me/FaVgL4Qm) : ★★★★☆ 이영자가 산을 느낄 수있다고 얘기한 육회비빔밥  
 [콘티넨탈](http://naver.me/FxzYB528) : ★★★★  
+[재인](http://naver.me/xfaxi4IK) : ★★★★ 늦게 가서 시그니처는 맛보지 못했다. 그런데 와... 놀라웠다  
 [소금집](http://naver.me/5o2foOJT) : ★★★★  
 [아리아께](http://naver.me/F8RHqLfs) : ★★★★ 우리나라 최고의 스시라 하는데 한번밖에 안가봤지만 인상깊진 않았다. 언젠간 오마카세 먹어볼것.  
 [카와카츠](http://naver.me/xVKjtJSV) : ★★★★  
@@ -38,7 +42,7 @@
 [옥동식](http://naver.me/GwaOt5RE) : ★★★☆ 깔끔  
 [osteria ora](http://naver.me/xAaMUthe) : ★★★☆ 부라타가 갑자기먹고 싶어서 감. 나쁘지 않았다.  
 [잇텐고](http://naver.me/FGp6MouL) : ★★★☆ 바질라멘보다 오히려 돈코츠라멘이 인상적이었던 집.  
-[브라더후드키친](http://naver.me/GLYPnKmy) : ★★★ 미국 가정식이라니 비주얼에 놀람  
+~~[브라더후드키친](http://naver.me/GLYPnKmy) : ★★★ 미국 가정식이라니 비주얼에 놀람~~  
 [쿠이신보](http://naver.me/5uO4gxRF) : ? 야키토리 전문점 가보고싶어  
 [수카라](http://naver.me/Gurxml3M) : ?  
 [주간소바식당 산](http://naver.me/xCfblx4d) : ?  
