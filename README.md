@@ -104,7 +104,7 @@ __대구__ [대쿠이](http://naver.me/5k3o0dMr) : ?
 __인천__ [534라비아](http://naver.me/xRVnvmBN) : ?  
 __영천__ [포항할매집](http://naver.me/GAiK2Xi8) : ★★★ 한국 100대 맛집이라 하는데 국물이 깊긴 했다.  
 __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬가지로 한국 100대 맛집. 여기가 본점인데도 청담 영천영화가 난 훨씬 맛있었다.  
-__도쿄__ [다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 쉐프님이 연세가 많으신데 제발 오래 오래 하셨으면 좋겠다. 정말 친절하게 설명 잘해주심  
+~~__도쿄__ [다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 2020년 9월에 은퇴하신걸 알게 되었다 쉐프님 장수하세요!~~  
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
 __런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
