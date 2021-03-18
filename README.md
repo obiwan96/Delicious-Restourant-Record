@@ -16,10 +16,10 @@
 [이태리 파스타](https://map.naver.com/v5/entry/place/1542397016?c=14397117.3133693,4301678.8876762,15,0,0,0,dh) : ★★★★ 라구 알라 파스타  
 [박신우 제면소](https://map.naver.com/v5/entry/place/1803011937?c=14396388.7729435,4301356.4189631,15,0,0,0,dh) : ★★★★ 메밀로 우동은 신선했다  
 [상해교자](http://naver.me/5izc3kJy) : ★★★★ 지방에서 보기 힘든 훌륭한 딤섬집. 시국때문에 포장만 2번해먹어봤는데 시국 끝나면 꼭 가서 먹고 싶다.  
-[순이](https://map.naver.com/v5/entry/place/1336470115?c=14397314.3775829,4301882.5206968,16,0,0,0,dh) : ★★★★ 개인적으로 서울서 장사해도 안꿀릴거같음  
 [레벤 꼬고방](https://store.naver.com/restaurants/detail?id=15070537) : ★★★★ 마늘 치킨  
 [어코너](http://naver.me/5lZCfsag) : ★★★☆ 사장님 대박나셔서 에그타르트 더 자주 만들어주세요  
 [베라보](http://naver.me/IgtgWqMH) : ★★★☆ 매번 바뀌는 특선이 묘미  
+[순이](https://map.naver.com/v5/entry/place/1336470115?c=14397314.3775829,4301882.5206968,16,0,0,0,dh) : ★★★☆ 메뉴 리뉴얼하고나서 영 아쉽다. 돈코츠가 왜 사라졌는지 의문  
 [포항아구탕](http://naver.me/5JJshbxJ) : ★★★☆  
 [스쿱당](http://naver.me/5KZ8Luv1) : ★★★ 명성만 많이 들었지 가본건 처음인데 비주얼때문에 유명한건가 싶다. 지극히 평범한 맛이어서 실망  
 [Yellow Dragon Curry](http://naver.me/GjRdL9AC) : ?  
