@@ -16,6 +16,7 @@
 [상해교자](http://naver.me/5izc3kJy) : ★★★★☆ 지방에서 보기 힘든 훌륭한 중식. 딤섬만 잘하는줄알았는데 맛없는 메뉴가 없다. 짬뽕도 아주 진국  
 [이태리 파스타](https://map.naver.com/v5/entry/place/1542397016?c=14397117.3133693,4301678.8876762,15,0,0,0,dh) : ★★★★ 라구 알라 파스타  
 [박신우 제면소](https://map.naver.com/v5/entry/place/1803011937?c=14396388.7729435,4301356.4189631,15,0,0,0,dh) : ★★★★ 메밀로 우동은 신선했다  
+[고어라운드 커피](http://naver.me/FJHPtc8Q) : ★★★★ 포항에만 있는 체인인데, 효자점은 공간, 맛, 서비스 모두 너무나도 아늑하다.  
 [솔향기오리촌](http://naver.me/5Rch6bmr) : ★★★★ 모든 피로가 풀린다  
 [레벤 꼬고방](https://store.naver.com/restaurants/detail?id=15070537) : ★★★★ 마늘 치킨  
 [베라보](http://naver.me/IgtgWqMH) : ★★★☆ 매번 바뀌는 특선이 묘미  
@@ -70,6 +71,7 @@
 [고옥](http://naver.me/G853vi9z) : ★★★★☆ 히츠마부시 최고.  
 [개화](http://naver.me/FOsDrZQV) : ★★★★ 탕수육. 마음의 고향  
 [엘 올리브](http://naver.me/GWKlHG4w) : ★★★★ 부산 양식 집중에는 가장 입맛에 맞다.  
+[모모스커피](http://naver.me/xtWHHejk) : ★★★★ 부산 커피의 자존심  
 [강가 해운대점](http://naver.me/I5jCwbn1) : ★★★★ 체인점이기도 하지만 정말 좋아하는 인도식  
 [신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향  
 [비안리안](http://naver.me/Ft8C33OQ) : ★★★★ 우선 몇번 더 가봐야 알겠지만 일단은 정말 괜찮은집인 것 같다. 거지닭 꼭 먹어봐야겠다.  
@@ -115,4 +117,5 @@ __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬�
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
 __런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
+__홍콩__ [더 커피 아카데믹스](https://g.page/TCA-CausewayBay?share) : ★★★★ 다녀온지 2년이 훌쩍 넘어가는 시점에서도 가끔 생각나는 냄새, 분위기, 맛  
 ***
