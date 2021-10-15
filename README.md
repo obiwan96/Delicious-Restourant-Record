@@ -23,6 +23,7 @@
 [솔향기오리촌](http://naver.me/5Rch6bmr) : ★★★☆ 능이오리약탕 먹으면 몸보신 아주 완벽  
 [순이](https://map.naver.com/v5/entry/place/1336470115?c=14397314.3775829,4301882.5206968,16,0,0,0,dh) : ★★★☆ 메뉴 리뉴얼하고나서 영 아쉽다. 돈코츠가 왜 사라졌는지 의문  
 [포항아구탕](http://naver.me/5JJshbxJ) : ★★★☆  
+[짬뽕프로](http://naver.me/GFpi4jKE) : ★★★☆  
 [어코너](http://naver.me/5lZCfsag) : ★★★ 사장님 대박나셔서 에그타르트 더 자주 만들어주세요  
 [스쿱당](http://naver.me/5KZ8Luv1) : ★★☆ 명성만 많이 들었지 가본건 처음인데 비주얼때문에 유명한건가 싶다. 지극히 평범한 맛이어서 실망  
 [Yellow Dragon Curry](http://naver.me/GjRdL9AC) : ?  
@@ -76,7 +77,9 @@
 [신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향  
 [비안리안](http://naver.me/Ft8C33OQ) : ★★★★ 우선 몇번 더 가봐야 알겠지만 일단은 정말 괜찮은집인 것 같다. 거지닭 꼭 먹어봐야겠다.  
 [남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★☆  
+[구선장횟집](http://naver.me/FZJ9pbdl): ★★★☆ 꼼장어, 아나고회 정말 싸고 싱싱하고 맛있다.  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
+[아오모리](http://naver.me/FFvivuzk) : ★★★☆ 이 정도의 오마카세는 기본이라고 생각되는데도 부산에서 이만한 스시집을 아직 찾지 못했다.  
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★☆ 생면파스타. 면만 보자면 볼피노가 더 맛있다.  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
 [차오란](http://naver.me/GLK2q4pk) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
