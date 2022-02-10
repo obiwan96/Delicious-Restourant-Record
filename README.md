@@ -44,6 +44,8 @@
 [정식당](http://naver.me/xSjl0jIT) : ★★★☆ 한번 쯤 체험해보는 것은 좋다고 생각. 신선한 충격.  
 [서울동](http://naver.me/5SUeRUAO) : ★★★☆ 비주얼 최강  
 [합정옥](http://naver.me/5B5Z45Q9) : ★★★☆  
+[아메노히커피점](http://naver.me/5WGU0Kdt) : ★★★☆  
+[델문도](http://naver.me/G14a5SNh) : ★★★☆ 크림소다  
 [옥동식](http://naver.me/GwaOt5RE) : ★★★☆ 깔끔  
 [osteria ora](http://naver.me/xAaMUthe) : ★★★☆ 부라타가 갑자기먹고 싶어서 감. 나쁘지 않았다.  
 [잇텐고](http://naver.me/FGp6MouL) : ★★★☆ 바질라멘보다 오히려 돈코츠라멘이 인상적이었던 집.  
@@ -65,6 +67,8 @@
 ## 수원
 [키와마루아지](http://naver.me/G5u9d2bO) : ★★★★ 츠케멘 처음엔 독특해서 신기했는데 먹다보니 디게 맛있다. 돈코츠도 맛있다.   
 [태화장 본점](http://naver.me/xitzELCr) : ★★ 맛있긴한데 기름이 너무 많다. 이게 윗지방식 국밥인가.  
+[콜스커피](http://naver.me/5s9zQopA) : ★★★★ 아몬드 커피 완전 싱기  
+[패터슨커피](http://naver.me/xOCmXvDx) : ★★★☆  
 ***
 
 ## 부산
@@ -77,9 +81,11 @@
 [신창국밥](http://naver.me/5eOxkWAJ) : ★★★★ 마음의 고향  
 [비안리안](http://naver.me/Ft8C33OQ) : ★★★★ 우선 몇번 더 가봐야 알겠지만 일단은 정말 괜찮은집인 것 같다. 거지닭 꼭 먹어봐야겠다.  
 [남천할매떡복이](http://naver.me/FSKjC1OM) : ★★★☆  
+[남천녹차팥빙수](http://naver.me/5HSEvH8r) : ★★★☆ 점점 옛날 방식의 팥빙수를 보기 힘든 요즘 3000원에 아주 맛있는 팥빙수를 파는 곳.  
 [구선장횟집](http://naver.me/FZJ9pbdl): ★★★☆ 꼼장어, 아나고회 정말 싸고 싱싱하고 맛있다.  
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
 [아오모리](http://naver.me/FFvivuzk) : ★★★☆ 이 정도의 오마카세는 기본이라고 생각되는데도 부산에서 이만한 스시집을 아직 찾지 못했다.  
+[어밤부](http://naver.me/Ft8l9UFN) : ★★★☆ 가게 풍경이 진짜 굉장한데 맛도 꽤나 괜찮다. 송정에서 밥먹을 곳을 찾는다면 추천  
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★☆ 생면파스타. 면만 보자면 볼피노가 더 맛있다.  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
 [차오란](http://naver.me/GLK2q4pk) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
@@ -114,6 +120,10 @@ __경주__ [함양집](http://naver.me/xUJy0Tmp) : ★★★☆ 육회 물회
 __경주__ [경주반점](http://naver.me/5YnQZSUT) : ? 수현누나의 원픽  
 __대구__ [반고개 무침회 골목](http://naver.me/xBDrdeAI) : ★★★★☆ 의성, 푸른회 두 곳 가봤는데 이 거리는 어딜가든 맛있는듯. 넙적만두에 싸먹은 후 밥시켜서 비벼먹을것.  
 __대구__ [대쿠이](http://naver.me/5k3o0dMr) : ?  
+__강릉__[보헤미안박이추커피본점카페](http://naver.me/GqBs8xB5) : ★★★★★ 유일하게 활동하시는 1세대 바리스타 답게 아직도 드립은 직접하신다. 오래 오래 건강하셔서 몇 번이고 찾아가고 싶다. 커피공장점도 방문해본 적이 있는데, 강릉까지 갔으면 무조건 박이추 선생님이 계신 본점을 가보자.
+__강릉__[남산막국수](http://naver.me/x4bunaxG) : ★★★★  
+__속초__[도리스 파티세리](http://naver.me/5Rc5VsSm) : ★★★☆ 에그타르트가 훌륭하다  
+__속초__[청초수물회](http://naver.me/5aVtI2iy): ★★★☆ 매운탕안줘서 반점 감점  
 __인천__ [534라비아](http://naver.me/xRVnvmBN) : ?  
 __영천__ [포항할매집](http://naver.me/GAiK2Xi8) : ★★★ 한국 100대 맛집이라 하는데 국물이 깊긴 했다.  
 __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬가지로 한국 100대 맛집. 여기가 본점인데도 청담 영천영화가 난 훨씬 맛있었다.  
