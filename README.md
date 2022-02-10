@@ -52,7 +52,7 @@
 [잇텐고](http://naver.me/FGp6MouL) : ★★★☆ 바질라멘보다 오히려 돈코츠라멘이 인상적이었던 집.  
 ~~[브라더후드키친](http://naver.me/GLYPnKmy) : ★★★ 미국 가정식이라니 비주얼에 놀람~~  
 [쿠이신보](http://naver.me/5uO4gxRF) : ? 야키토리 전문점 가보고싶어  
-[수카라](http://naver.me/Gurxml3M) : ?  
+~~[수카라](http://naver.me/Gurxml3M) : ?~~  
 [주간소바식당 산](http://naver.me/xCfblx4d) : ?  
 [헤이보울](http://naver.me/GKme85Gc) : ?  
 [임병주산동손칼국수](http://naver.me/FxzYB4Yt) : ?  
