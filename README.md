@@ -38,6 +38,7 @@
 [재인](http://naver.me/xfaxi4IK) : ★★★★★ 갈 때마다 놀라운 맛  
 [영천영화](http://naver.me/FaVgL4Qm) : ★★★★☆ 이영자가 산을 느낄 수있다고 얘기한 육회비빔밥  
 [콘티넨탈](http://naver.me/FxzYB528) : ★★★★  
+[서울신라호텔 패스트리부티크](http://naver.me/xNdlErgK) : ★★★★ 왠만한 디저트 맛집들보다 훨씬 낫다. 대기도 안해도 됨  
 [소금집](http://naver.me/5o2foOJT) : ★★★★  
 [아리아께](http://naver.me/F8RHqLfs) : ★★★★ 우리나라 최고의 스시라 하는데 한번밖에 안가봤지만 인상깊진 않았다. 언젠간 오마카세 먹어볼것.  
 [카와카츠](http://naver.me/xVKjtJSV) : ★★★★  
@@ -50,6 +51,7 @@
 [옥동식](http://naver.me/GwaOt5RE) : ★★★☆ 깔끔  
 [osteria ora](http://naver.me/xAaMUthe) : ★★★☆ 부라타가 갑자기먹고 싶어서 감. 나쁘지 않았다.  
 [잇텐고](http://naver.me/FGp6MouL) : ★★★☆ 바질라멘보다 오히려 돈코츠라멘이 인상적이었던 집.  
+[라연](http://naver.me/GAiBx6kh) : ★★★☆ 대체 왜 미슐랭 3스타인지 이해가 안된다. 경치, 서비스를 고려했을 때 1스타 정도면 충분. 재방문 의사 전혀 없음  
 ~~[브라더후드키친](http://naver.me/GLYPnKmy) : ★★★ 미국 가정식이라니 비주얼에 놀람~~  
 [쿠이신보](http://naver.me/5uO4gxRF) : ? 야키토리 전문점 가보고싶어  
 ~~[수카라](http://naver.me/Gurxml3M) : ?~~  
