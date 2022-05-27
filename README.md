@@ -41,8 +41,10 @@
 [콘티넨탈](http://naver.me/FxzYB528) : ★★★★  
 [서울신라호텔 패스트리부티크](http://naver.me/xNdlErgK) : ★★★★ 왠만한 디저트 맛집들보다 훨씬 낫다. 대기도 안해도 됨  
 [소금집](http://naver.me/5o2foOJT) : ★★★★  
+[최강금돈까스](http://naver.me/Fn2i6WWv) : ★★★★ 맛은 3.75정도였는데 서비스나 음식을 대하는 태도가 참 기분좋게 만든다. 깔끔했던 점도 한몫.  
 [아리아께](http://naver.me/F8RHqLfs) : ★★★★ 우리나라 최고의 스시라 하는데 한번밖에 안가봤지만 인상깊진 않았다. 언젠간 오마카세 먹어볼것.  
 [카와카츠](http://naver.me/xVKjtJSV) : ★★★★  
+[모터시티](http://naver.me/GjRG3OqL) : ★★★★ 시그니처 메뉴인 잭슨5 한정 4점  
 [키오스크](http://naver.me/FBEy3E4K) : ★★★★ 절인 딸기 토스트. 사장님이 너무 착하시다.  
 [정식당](http://naver.me/xSjl0jIT) : ★★★☆ 한번 쯤 체험해보는 것은 좋다고 생각. 신선한 충격.  
 [서울동](http://naver.me/5SUeRUAO) : ★★★☆ 비주얼 최강  
@@ -71,7 +73,7 @@
 ## 수원
 [키와마루아지](http://naver.me/G5u9d2bO) : ★★★★ 츠케멘 처음엔 독특해서 신기했는데 먹다보니 디게 맛있다. 돈코츠도 맛있다.   
 [콜스커피](http://naver.me/5s9zQopA) : ★★★★ 아몬드 커피 완전 싱기  
-[글렌베니](http://naver.me/xOCIYIGS)(바) : ★★★★ 컬렉션, 바텐딩 모두 수준급. 바텐더분들이 대거 바뀐 뒤론 가보지 못했다.  
+[글렌베니](http://naver.me/xOCIYIGS)(바) : ★★★★ 컬렉션, 바텐딩 모두 수준급.  
 [DeTail 바](http://naver.me/Goz55iOf)(바) : ★★★★ 우선 행궁동을 내려다보는 전경이 훌륭하다. 이용해보진 않았지만 루프탑도 있다. 바텐딩이나 컬렉션도 훌륭한 편.  
 [패터슨커피](http://naver.me/xOCmXvDx) : ★★★☆  
 [태화장 본점](http://naver.me/xitzELCr) : ★★ 맛있긴한데 기름이 너무 많다. 이게 윗지방식 국밥인가.  
