@@ -38,12 +38,15 @@
 [다운타우너](http://naver.me/FRY9P7gG) : ★★★★★ 아보카도 버거, 과카몰리 후라이.  
 [재인](http://naver.me/xfaxi4IK) : ★★★★★ 갈 때마다 놀라운 맛  
 [영천영화](http://naver.me/FaVgL4Qm) : ★★★★☆ 이영자가 산을 느낄 수있다고 얘기한 육회비빔밥  
+[디스틸](https://naver.me/5xlL4opD)(바) : ★★★★☆ 대체로 훌륭했지만, 마티니는 정말 예술이었다. 가격이 싸진 않지만 그만큼 술을 아낌없이 넣어주신다.  
 [콘티넨탈](http://naver.me/FxzYB528) : ★★★★  
 [서울신라호텔 패스트리부티크](http://naver.me/xNdlErgK) : ★★★★ 왠만한 디저트 맛집들보다 훨씬 낫다. 대기도 안해도 됨  
 [소금집](http://naver.me/5o2foOJT) : ★★★★  
 [최강금돈까스](http://naver.me/Fn2i6WWv) : ★★★★ 맛은 3.75정도였는데 서비스나 음식을 대하는 태도가 참 기분좋게 만든다. 깔끔했던 점도 한몫.  
 [아리아께](http://naver.me/F8RHqLfs) : ★★★★ 우리나라 최고의 스시라 하는데 한번밖에 안가봤지만 인상깊진 않았다. 언젠간 오마카세 먹어볼것.  
 [카와카츠](http://naver.me/xVKjtJSV) : ★★★★  
+[먼치](https://naver.me/FuVEQeF9) : ★★★★ 꽈리고추, 오렌지 필을 곁들인 항정살 리가토니는 4.5점 주고 싶다. 간만에 정말 신선하면서 밸런스로 가득찬 음식이었다.  
+[타마시](https://naver.me/5girGeNd)(이자까야) : ★★★★  
 [모터시티](http://naver.me/GjRG3OqL) : ★★★★ 시그니처 메뉴인 잭슨5 한정 4점  
 [키오스크](http://naver.me/FBEy3E4K) : ★★★★ 절인 딸기 토스트. 사장님이 너무 착하시다.  
 [정식당](http://naver.me/xSjl0jIT) : ★★★☆ 한번 쯤 체험해보는 것은 좋다고 생각. 신선한 충격.  
@@ -51,7 +54,8 @@
 [합정옥](http://naver.me/5B5Z45Q9) : ★★★☆  
 [아메노히커피점](http://naver.me/5WGU0Kdt) : ★★★☆  
 [델문도](http://naver.me/G14a5SNh) : ★★★☆ 크림소다  
-[옥동식](http://naver.me/GwaOt5RE) : ★★★☆ 깔끔  
+[고미태](https://naver.me/xbw7KnlH) : ★★★☆ 닭콩국수를 맛봤는데, 한번쯤 경험해볼 재밌는 경험. 면을 좀 줄이더라도 참외가 좀 더 많았으면 더 깔끔했을 것 같다.  
+[옥동식](http://naver.me/GwaOt5RE) : ★★★☆ 수도권에서 유명한 국밥집은 왜이렇게 느끼할까..  
 [osteria ora](http://naver.me/xAaMUthe) : ★★★☆ 부라타가 갑자기먹고 싶어서 감. 나쁘지 않았다.  
 [잇텐고](http://naver.me/FGp6MouL) : ★★★☆ 바질라멘보다 오히려 돈코츠라멘이 인상적이었던 집.  
 [라연](http://naver.me/GAiBx6kh) : ★★★☆ 대체 왜 미슐랭 3스타인지 이해가 안된다. 경치, 서비스를 고려했을 때 1스타 정도면 충분. 재방문 의사 전혀 없음  
@@ -71,10 +75,12 @@
 ***
 
 ## 수원
+[평장원 남문점](https://naver.me/5pNEGBFv) : ★★★★ 대전 숯골원 스타일의 평양냉면. 깔끔했다.  
 [키와마루아지](http://naver.me/G5u9d2bO) : ★★★★ 츠케멘 처음엔 독특해서 신기했는데 먹다보니 디게 맛있다. 돈코츠도 맛있다.   
 [콜스커피](http://naver.me/5s9zQopA) : ★★★★ 아몬드 커피 완전 싱기  
 [글렌베니](http://naver.me/xOCIYIGS)(바) : ★★★★ 컬렉션, 바텐딩 모두 수준급.  
 [DeTail 바](http://naver.me/Goz55iOf)(바) : ★★★★ 우선 행궁동을 내려다보는 전경이 훌륭하다. 이용해보진 않았지만 루프탑도 있다. 바텐딩이나 컬렉션도 훌륭한 편.  
+[트라토리아](https://naver.me/F5bFjW9z) : ★★★☆  
 [패터슨커피](http://naver.me/xOCmXvDx) : ★★★☆  
 [태화장 본점](http://naver.me/xitzELCr) : ★★ 맛있긴한데 기름이 너무 많다. 이게 윗지방식 국밥인가.  
 ***
@@ -149,5 +155,9 @@ __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬�
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
 __런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
+__밀라노__ [Panzerotti Luini](https://g.page/PanzerottiLuini?share) : ★★★★ 관광지로 유명한 식당은 잘 안믿는 편인데, 여기 빵 정말 맛있다. 여행 중 두번 갔다.  
+__밀라노__ [Ciacco](https://goo.gl/maps/rYsny3zXNxZxQL4N6)(젤라또) : ★★★★ 과일 젤라또류가 정말 맛있다.  
+__밀라노__ [Ratanà](https://g.page/RistoranteRatana?share) : ★★★☆ 2022년 기준, 한국인 쉐프가 계셔서 김치가 들어간 파스타를 맛볼 수 있었다. 그런데 이거 정말 맛있었다.  
+__브뤼셀__ [Le Marmiton](https://g.page/LeMarmitonBruxelles?share) : ★★★★ 치즈갈릭홍합 진짜 정말 맛있었다...  
 __홍콩__ [더 커피 아카데믹스](https://g.page/TCA-CausewayBay?share) : ★★★★ 다녀온지 2년이 훌쩍 넘어가는 시점에서도 가끔 생각나는 냄새, 분위기, 맛  
 ***
