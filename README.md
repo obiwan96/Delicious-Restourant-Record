@@ -88,6 +88,7 @@
 ## 부산
 [명물 횟집](http://naver.me/FTnPRLWq) : ★★★★★ 부산이 처음이면 여기가서 회백반 먹을것. 조금 비쌈.  
 [고옥](http://naver.me/G853vi9z) : ★★★★☆ 히츠마부시 최고.  
+[상생라멘 심야식당점](https://naver.me/xhHnMxJz) : ★★★★☆ 분위기 때문에 0.5개 더. 일본에 온 듯한 착각이 든다.  
 [개화](http://naver.me/FOsDrZQV) : ★★★★ 탕수육. 마음의 고향  
 [엘 올리브](http://naver.me/GWKlHG4w) : ★★★★ 부산 양식 집중에는 가장 입맛에 맞다.  
 [모모스커피](http://naver.me/xtWHHejk) : ★★★★ 부산 커피의 자존심  
@@ -100,6 +101,7 @@
 [다리집](http://naver.me/F3IJBaae) : ★★★☆  
 [아오모리](http://naver.me/FFvivuzk) : ★★★☆ 이 정도의 오마카세는 기본이라고 생각되는데도 부산에서 이만한 스시집을 아직 찾지 못했다.  
 [어밤부](http://naver.me/Ft8l9UFN) : ★★★☆ 가게 풍경이 진짜 굉장한데 맛도 꽤나 괜찮다. 송정에서 밥먹을 곳을 찾는다면 추천  
+[라라관](https://naver.me/xRQ0VqX9) : ★★★☆ 짜사이 내지 단무지라도 줬으면 0.5점 더줬을 지도? 너무 술안주에 집중해서 아쉽  
 [라꽁띠](http://naver.me/FGp6MOXO) : ★★★☆ 생면파스타. 면만 보자면 볼피노가 더 맛있다.  
 [국제밀면](http://naver.me/5X34PGqw) : ★★★☆  
 [차오란](http://naver.me/GLK2q4pk) : ★★☆ 너무 한국 현지화된 맛. 너무 달다.  
