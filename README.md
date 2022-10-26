@@ -17,18 +17,19 @@
 [더쿤](http://naver.me/xC6t6WUJ)(바) : ★★★★☆ 왜 포항에 계시지 신기할 정도로 정말 바텐딩 실력이 뛰어나시다. 다만 1인 영업이다보니 컬렉션이나 규모는 작음  
 [이태리 파스타](https://map.naver.com/v5/entry/place/1542397016?c=14397117.3133693,4301678.8876762,15,0,0,0,dh) : ★★★★ 라구 알라 파스타  
 [박신우 제면소](https://map.naver.com/v5/entry/place/1803011937?c=14396388.7729435,4301356.4189631,15,0,0,0,dh) : ★★★★ 메밀로 우동은 신선했다  
-[고어라운드 커피](http://naver.me/FJHPtc8Q) : ★★★★ 포항에만 있는 체인인데, 효자점은 공간, 맛, 서비스 모두 너무나도 아늑하다.  
+[감포조개구이](https://naver.me/5xla6ScJ) : ★★★★ 공대 근처 가성비 갑인거 같음  
+[고어라운드 커피](http://naver.me/FJHPtc8Q) : ★★★★ 포항에만 있는 체인인데, 효자점은 공간, 맛, 서비스 모두 너무나도 아늑하다. 고어라운드들이 전체적으로 요즘 아쉽다.  
 [솔향기오리촌](http://naver.me/5Rch6bmr) : ★★★★ 모든 피로가 풀린다  
-[레벤 꼬고방](https://store.naver.com/restaurants/detail?id=15070537) : ★★★★ 마늘 치킨  
+~~[레벤 꼬고방](https://store.naver.com/restaurants/detail?id=15070537) : ★★★★ 마늘 치킨~~  
 [영남식육식당](http://naver.me/5Q4GJbc0) : ★★★★ 점심 육회비빔밥에 한해서 이 근방에서 만원에 즐길 수 있는 최고의 기쁨이다.  
 [베라보](http://naver.me/IgtgWqMH) : ★★★☆ 매번 바뀌는 특선이 묘미  
 [솔향기오리촌](http://naver.me/5Rch6bmr) : ★★★☆ 능이오리약탕 먹으면 몸보신 아주 완벽  
 [순이](https://map.naver.com/v5/entry/place/1336470115?c=14397314.3775829,4301882.5206968,16,0,0,0,dh) : ★★★☆ 메뉴 리뉴얼하고나서 영 아쉽다. 어디 공지하는 곳 없이 일방적으로 자주 쉬는 가게 영업 방식에 슬 짜증이 난다.  
 [포항아구탕](http://naver.me/5JJshbxJ) : ★★★☆  
 [짬뽕프로](http://naver.me/GFpi4jKE) : ★★★☆  
+[Yellow Dragon Curry](http://naver.me/GjRdL9AC) : ★★★☆  
 [어코너](http://naver.me/5lZCfsag) : ★★★ 사장님 대박나셔서 에그타르트 더 자주 만들어주세요  
 [스쿱당](http://naver.me/5KZ8Luv1) : ★★☆ 명성만 많이 들었지 가본건 처음인데 비주얼때문에 유명한건가 싶다. 지극히 평범한 맛이어서 실망  
-[Yellow Dragon Curry](http://naver.me/GjRdL9AC) : ?  
 [포항특미물회](http://naver.me/5Vud2Hju) : ?  
 [오막골](http://naver.me/xkjzHBYn) : ?  
 [스시가](http://naver.me/GUvLFajh) : ?  
