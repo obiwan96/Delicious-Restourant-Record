@@ -119,6 +119,8 @@
 [스시 호산](http://naver.me/FyNIL5DU) : ★★★★☆ 다 좋은데 양이 너무 많아요 쉐프님  
 [투웨이 버거](http://naver.me/xPtKHbZH) : ★★★★  
 [성심당](http://naver.me/FXZHFgQh) : ★★★★ 성심당은 이제 튀소가 아니라 브리치즈샌드위치다  
+[만화쉔샤오룽빠오면식관](https://naver.me/GNyUqz3O) : ★★★★ 수준급 딤섬집이 궁동에 생겼다니. 가격대가 약간 있는 편.  
+[태화장](https://naver.me/5U1GdV6O) : ★★★★ 오히려 식사류보다 요리 류가 더 맛있었다. 탕수육 굉장히 맛있었음. 사람이 많지만 원격 줄서기가 가능한 것도 장점.  
 ~~[까치오 에 페페](http://naver.me/58hwRy7G) : ★★★★ 왜 졸업하니까 이런 식당이 생기는겁니까~~  
 [태평소](http://naver.me/FHZd29jm) : ★★★★  
 [헤이마오차이](http://naver.me/F7C2Jcx5) : ★★★★ 중국의 유명 체인이라 해서 우리나라에 많은 줄 알았는데 딱 한 곳 있는줄 몰랐다. 맑은 마라탕을 맛볼 수 있는 좋은 곳   
@@ -128,6 +130,19 @@
 [우츠](http://naver.me/x1X62tCt) : ?  
 [심스 스모크하우스](http://naver.me/GSku2zyh): ?  
 ***
+
+## 도쿄
+[Sushi Ryūjirō](https://goo.gl/maps/GwNoeRPAyj2xhKJr5) : ★★★★☆ 맛도 맛이지만, 접객에 있어서의 쉐프님들의 진심이 너무 기분이 좋았다. 예약 및 가격 측면에서 접근성이 매우 낮은 것은 사실이나, 그나마 예약 사이트가 따로 있어서 도쿄 고급 스시야들 중에는 예약도 가능한 편. 참치를 첫점으로 줘서 신기했는데, 다 이유가 있더라.  
+~~[다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 2020년 9월에 은퇴하신걸 알게 되었다 쉐프님 장수하세요!~~  
+[Mugi to Olive](https://goo.gl/maps/TJzvzXBPqqhURi827) : ★★★★ 긴자 한복판에 있는, 줄이 꽤 길었던 가게. 트리플 라멘이 정말 독특한데 굉장히 맛있었다. 올리브유도 꼭 찍어먹을것.  
+[히츠마부시 나고야 빈쵸](https://goo.gl/maps/JtKQvZVpXwuHoZG28) : ★★★★ 1회 방문 때 체인인데도 매우 훌륭하다고 생각했는데, 2회 방문 때는 줄이 너무 길었다. 하지만 여전히 훌륭. 시간 없으면 포장도 가능.  
+[Tender Bar](https://goo.gl/maps/K2ouRTzmxDJTbkWX7)(바) : ★★★★ 하드쉐이킹으로 유명한 바인데, 김렛을 고든스진으로 해주셔서 비교가 쉽진 않았지만, 훌륭했다.  
+[Kunisuke Coffee](https://goo.gl/maps/RHux2faYqFrgKZG7A) : ★★★☆ 츠키지 시장에 간 김에 들른 카페. 맛도 좋고, 인테리어도 굉장히 재미지다.  
+[이마카츠 긴자점](https://goo.gl/maps/fma71yZNiSnbFVJZ8) : ★★★☆ 줄에 비해 제작이 굉장히 느리다. 닭안심 카츠.  
+[라 부티크 드 조엘 로부숑](https://goo.gl/maps/38CLUYAUdjJENH2u7) : ★★★☆ 빵이 대체로 훌륭하다. 크레페를 이용한 요리도 굉장히 색다르고 맛있다.  
+[Tachigui Sushi Akira](https://goo.gl/maps/PaG49hgM1BzgUuMM9) : ? 예약 없이 오로지 줄서기만으로 먹는 스시집이라 예약 실패 시 시도해보고 싶다. 신바시에 1호점, 스키지시장에 2호점  
+[Mori Bar](https://goo.gl/maps/cqxr5hY2eqH1Pfvp9)(바) : ? 스터 장인  
+
 
 ## 기타 지역
 __제주__ [진미명가](http://naver.me/5FeZAo7Q) : ★★★★★ 그저 오래 살아계셨으면 좋겠다. 다금바리가 되는 날에 가려면 운이 따라야 하지만 가게 된다면 회는 소금에 찍어먹겠다고 말하고, 식사는 무조건 지리로 할 것  
@@ -154,7 +169,6 @@ __인천__ [534라비아](http://naver.me/xRVnvmBN) : ?
 __영천__ [포항할매집](http://naver.me/GAiK2Xi8) : ★★★ 한국 100대 맛집이라 하는데 국물이 깊긴 했다.  
 __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬가지로 한국 100대 맛집. 여기가 본점인데도 청담 영천영화가 난 훨씬 맛있었다.  
 
-~~__도쿄__ [다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 2020년 9월에 은퇴하신걸 알게 되었다 쉐프님 장수하세요!~~  
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
 __런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
