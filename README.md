@@ -149,7 +149,7 @@
 [Mugi to Olive](https://goo.gl/maps/TJzvzXBPqqhURi827) : ★★★★ 긴자 한복판에 있는, 줄이 꽤 길었던 가게. 트리플 라멘이 정말 독특한데 굉장히 맛있었다. 올리브유도 꼭 찍어먹을것.  
 [히츠마부시 나고야 빈쵸](https://goo.gl/maps/JtKQvZVpXwuHoZG28) : ★★★★ 1회 방문 때 체인인데도 매우 훌륭하다고 생각했는데, 2회 방문 때는 줄이 너무 길었다. 하지만 여전히 훌륭. 시간 없으면 포장도 가능.  
 [Tender Bar](https://goo.gl/maps/K2ouRTzmxDJTbkWX7)(바) : ★★★★ 하드쉐이킹으로 유명한 바인데, 김렛을 고든스진으로 해주셔서 비교가 쉽진 않았지만, 훌륭했다.  
-[Kunisuke Coffee](https://goo.gl/maps/RHux2faYqFrgKZG7A) : ★★★☆ 츠키지 시장에 간 김에 들른 카페. 맛도 좋고, 인테리어도 굉장히 재미지다.  
+[Kunisuke Coffee](https://goo.gl/maps/RHux2faYqFrgKZG7A)(카페) : ★★★☆ 츠키지 시장에 간 김에 들른 카페. 맛도 좋고, 인테리어도 굉장히 재미지다.  
 [이마카츠 긴자점](https://goo.gl/maps/fma71yZNiSnbFVJZ8) : ★★★☆ 줄에 비해 제작이 굉장히 느리다. 닭안심 카츠.  
 [라 부티크 드 조엘 로부숑](https://goo.gl/maps/38CLUYAUdjJENH2u7)(베이커리) : ★★★☆ 빵이 대체로 훌륭하다. 크레페를 이용한 요리도 굉장히 색다르고 맛있다.  
 [Tachigui Sushi Akira](https://goo.gl/maps/PaG49hgM1BzgUuMM9) : ? 예약 없이 오로지 줄서기만으로 먹는 스시집이라 예약 실패 시 시도해보고 싶다. 신바시에 1호점, 스키지시장에 2호점  
