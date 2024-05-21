@@ -180,21 +180,22 @@ __대구__ [반고개 무침회 골목](http://naver.me/xBDrdeAI) : ★★★★
 __대구__ [체크인치즈](https://naver.me/FYa8iymr) :  ★★★★  
 __대구__ [대쿠이](http://naver.me/5k3o0dMr) : ?  
 
-__강릉__[보헤미안박이추커피본점카페](http://naver.me/GqBs8xB5)(카페) : ★★★★★ 유일하게 활동하시는 1세대 바리스타 답게 아직도 드립은 직접하신다. 오래 오래 건강하셔서 몇 번이고 찾아가고 싶다. 커피공장점도 방문해본 적이 있는데, 강릉까지 갔으면 무조건 박이추 선생님이 계신 본점을 가보자.  
-__강릉__[남산막국수](http://naver.me/x4bunaxG) : ★★★★  
+__강릉__ [보헤미안박이추커피본점카페](http://naver.me/GqBs8xB5)(카페) : ★★★★★ 유일하게 활동하시는 1세대 바리스타 답게 아직도 드립은 직접하신다. 오래 오래 건강하셔서 몇 번이고 찾아가고 싶다. 커피공장점도 방문해본 적이 있는데, 강릉까지 갔으면 무조건 박이추 선생님이 계신 본점을 가보자.  
+__강릉__ [남산막국수](http://naver.me/x4bunaxG) : ★★★★  
 
-__속초__[도리스 파티세리](http://naver.me/5Rc5VsSm)(카페) : ★★★☆ 에그타르트가 훌륭하다  
-__속초__[청초수물회](http://naver.me/5aVtI2iy): ★★★☆ 매운탕안줘서 반점 감점  
+__속초__ [도리스 파티세리](http://naver.me/5Rc5VsSm)(카페) : ★★★☆ 에그타르트가 훌륭하다  
+__속초__ [청초수물회](http://naver.me/5aVtI2iy): ★★★☆ 매운탕안줘서 반점 감점  
 
 __인천__ [534라비아](http://naver.me/xRVnvmBN) : ?  
+__인천__[팥지콩지](https://naver.me/FGoOKcOP) : ★★★★ 거의 모든 재료를 직접 만드시는 듯 했다. 빙수도, 콩국수도, 자루소바도 정말 별미였다.  
+__인천__[신승반점](https://naver.me/FiLEEjST) : ★★★★ 정말 맛있게 먹었는데, 다 먹고나서 배불러서 기억이 반감되는건 어쩔 수 없는 중식의 한계인듯.  
 
 __영천__ [포항할매집](http://naver.me/GAiK2Xi8) : ★★★ 한국 100대 맛집이라 하는데 국물이 깊긴 했다.  
 __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬가지로 한국 100대 맛집. 여기가 본점인데도 청담 영천영화가 난 훨씬 맛있었다.  
 
-__인천__[팥지콩지](https://naver.me/FGoOKcOP) : ★★★★ 거의 모든 재료를 직접 만드시는 듯 했다. 빙수도, 콩국수도, 자루소바도 정말 별미였다.  
-__인천__[신승반점](https://naver.me/FiLEEjST) : ★★★★ 정말 맛있게 먹었는데, 다 먹고나서 배불러서 기억이 반감되는건 어쩔 수 없는 중식의 한계인듯.  
-
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
+__뉴욕__ [킨스 스테이크하우스](https://maps.app.goo.gl/UiKbPavYRc1wQaTRA) : ★★★★ 뉴욕 3대 스테이크 중 하나 라고 하는데, 굉장히 오래된 식당에 간 것 자체로 재밌는 경험. 스테이크보다 후식으로 나온 치즈케이크가 진짜 정말 별미였다.  
+__뉴욕__ [Ess-a-Bagel](https://maps.app.goo.gl/VWtvF859rKyKZ7NW7) ★★★☆ 머스트 잇 베이글까지는 아닌데, 뉴욕에서 베이글 먹고 싶을 때 후회 없는 선택지이기는 할듯.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
 __런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
 __밀라노__ [Panzerotti Luini](https://g.page/PanzerottiLuini?share)(베이커리) : ★★★★ 관광지로 유명한 식당은 잘 안믿는 편인데, 여기 빵 정말 맛있다. 여행 중 두번 갔다.  
@@ -204,5 +205,7 @@ __브뤼셀__ [Le Marmiton](https://g.page/LeMarmitonBruxelles?share) : ★★�
 ~~__홍콩__ [더 커피 아카데믹스](https://g.page/TCA-CausewayBay?share)(카페) : ★★★★ 다녀온지 2년이 훌쩍 넘어가는 시점에서도 가끔 생각나는 냄새, 분위기, 맛~~  
 __파리__ [Le Loir dans La Théière](https://maps.app.goo.gl/a8vhheAzdx3xUZQ7A) ★★★★☆ 리뷰에는 레몬 머랭 타르트 얘기가 많은데, 오히려 브런치들이 정말 기깔났다. 신선한 재료에 훌륭한 기법이 추가되고, 차도 맛있으니 완벽한 한끼였다. 가게 분위기도 정말 훌륭. 꼭 다시 가고 싶다.  
 __파리__ [Maison Rostang](https://maps.app.goo.gl/fszCPT9Dm1YNPWnC7) ★★★★☆ 파리의 미슐랭 2스타 식당 중 코스가 가장 싸서 선택. 가격대비 정말 훌륭했기 때문에 프랑스 미식을 가성비 좋게 느껴보고 싶다면 완벽한 선택지. 24년 3월 기준으로 한국인 소물리에도 계셔서 더더욱 편히 즐길 수 있다.  
+__파리__ [La Glace Alain Ducasse, Manufacture à Paris](https://maps.app.goo.gl/BCkVoHjyoqVzmqpVA) ★★★★ 알랭 뒤카스가 운영하는 젤라또 집. 그 때 그때 제철 식재료를 이용하는데, 참 재밌는 경험  
+__파리__ [Restaurant Guy Savoy](https://maps.app.goo.gl/gJk1XgWFgkAD9eqf9) ★★★★ 고든 램지의 스승인 기 사부아의 식당. 최근 3스타에서 2스타로 하락했는데, 그 이유를 알 것 같기도 하다. 맛이 조금 아쉬웠다. 다만, 파티세리에는 3스타 이상의 훌륭함이 있었고, 그 경지에 계신대도 모든 손님에게 직접 인사하시는 기 사부아님의 에티튜드에 감동받기는 했다.  
 
 ***
