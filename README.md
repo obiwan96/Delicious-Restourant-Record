@@ -196,8 +196,11 @@ __영천__ [포항할매집](http://naver.me/GAiK2Xi8) : ★★★ 한국 100대
 __영천__ [편대장영화식당](http://naver.me/GxO2MHvu) : ★★★ 마찬가지로 한국 100대 맛집. 여기가 본점인데도 청담 영천영화가 난 훨씬 맛있었다.  
 
 __라스베가스__ [고든 램지 버거](https://goo.gl/maps/fRmsfeyowoy644mr5) : ★★★★ 버거는 그저 그랬는데 고구마 튀김이 와... 진짜 미친 음식이었다.  
+__뉴욕__ [L'Artusi](https://maps.app.goo.gl/BTYK4SkhM8gssJio9) : ★★★★ 파스타가 진짜 너무 맛있었어서 4.5점까지 고려했으나, 다른 음식들이 너무 평범했어서 4점. 그래도 훌륭한 이태리식당이다.  
 __뉴욕__ [킨스 스테이크하우스](https://maps.app.goo.gl/UiKbPavYRc1wQaTRA) : ★★★★ 뉴욕 3대 스테이크 중 하나 라고 하는데, 굉장히 오래된 식당에 간 것 자체로 재밌는 경험. 스테이크보다 후식으로 나온 치즈케이크가 진짜 정말 별미였다.  
-__뉴욕__ [Ess-a-Bagel](https://maps.app.goo.gl/VWtvF859rKyKZ7NW7) ★★★☆ 머스트 잇 베이글까지는 아닌데, 뉴욕에서 베이글 먹고 싶을 때 후회 없는 선택지이기는 할듯.  
+__뉴욕__ [피터 루거 스테이크 하우스](https://maps.app.goo.gl/2LBbveph2JKYp5Y8A) : ★★★☆ 뉴욕에서 가장 유명한 식당 중 하나가 아닐까 싶은데, 맛이 있기는 하나, 가격이나 접근성까지 고려하면 그렇게 좋은 식당은 아닌듯. 그래도 한번쯤은 가볼만하다.  
+__뉴욕__ [Ess-a-Bagel](https://maps.app.goo.gl/VWtvF859rKyKZ7NW7) : ★★★☆ 머스트 잇 베이글까지는 아닌데, 뉴욕에서 베이글 먹고 싶을 때 후회 없는 선택지이기는 할듯.  
+__뉴욕__ [Nougatine by Jean-Georges](https://maps.app.goo.gl/6jFkbbmFMRsLGS6u8) : ★☆ 아무리 서브 식당이고, 레스토랑 위크에 갔다고 해도, 그래도 한때 미슐랭 3스타였던 장조지의 서브식당이고, 적지 않은 금액을 냈는데 정말 맛있는 메뉴가 단 한개도 없었다. 심지어 연어나 소고기는 내가 조금만 연구해도 이거보다 잘 구울 수 있겠다 라는 생각이 들 정도. 내가 간 날 메인쉐프가 아팠거나, 내가 인종차별을 당한게 아닌 이상 정말 이해 안되는 경험이었다.  
 __런던__ [아마야](https://g.page/Amaya-Restaurant-London?share) : ★★★★☆ 살면서 먹은 가장 맛있는 샐러드를 경험했던 기억  
 __런던__ [Alain Ducasse at The Dorchester](https://goo.gl/maps/Geabn9S9Mm36AT7M6) : ★★★★☆ 양식 문화를 조금 더 배우고 다시 방문해보고 싶습니다.  
 __밀라노__ [Panzerotti Luini](https://g.page/PanzerottiLuini?share)(베이커리) : ★★★★ 관광지로 유명한 식당은 잘 안믿는 편인데, 여기 빵 정말 맛있다. 여행 중 두번 갔다.  
