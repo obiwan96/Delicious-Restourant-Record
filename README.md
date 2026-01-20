@@ -157,14 +157,14 @@
 
 ## 도쿄
 [Sushi Ryūjirō](https://goo.gl/maps/GwNoeRPAyj2xhKJr5) : ★★★★☆ 맛도 맛이지만, 접객에 있어서의 쉐프님들의 진심이 너무 기분이 좋았다. 예약 및 가격 측면에서 접근성이 매우 낮은 것은 사실이나, 그나마 예약 사이트가 따로 있어서 도쿄 고급 스시야들 중에는 예약도 가능한 편. 참치를 첫점으로 줘서 신기했는데, 다 이유가 있더라.  
-~~[다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 2020년 9월에 은퇴하신걸 알게 되었다 쉐프님 장수하세요!~~  
+[Tachigui Sushi Akira](https://goo.gl/maps/PaG49hgM1BzgUuMM9) : ★★★★☆ 예약 없이 오로지 줄서기만으로 먹는 스시집이라서 미리 예약하기 힘든 여행자에게 굉장히 큰 메리트. 1호점, 2호점 전부 가봤는데 정말 훌륭함. 큰 노력없이 도쿄의 스시를 느끼고 싶을 때 더할 나위없이 최고의 선택일듯.  
 [Mugi to Olive](https://goo.gl/maps/TJzvzXBPqqhURi827) : ★★★★☆ 긴자 한복판에 있는, 줄이 꽤 길었던 가게. 트리플 라멘이 정말 독특한데 굉장히 맛있었다. 올리브유도 꼭 찍어먹을것.  
+~~[다이산 하루미 스시](https://goo.gl/maps/5weB4rBpbNhegTwD9) : ★★★★☆ 2020년 9월에 은퇴하신걸 알게 되었다 쉐프님 장수하세요!~~  
 [히츠마부시 나고야 빈쵸](https://goo.gl/maps/JtKQvZVpXwuHoZG28) : ★★★★ 1회 방문 때 체인인데도 매우 훌륭하다고 생각했는데, 2회 방문 때는 줄이 너무 길었다. 하지만 여전히 훌륭. 시간 없으면 포장도 가능.  
 [Tender Bar](https://goo.gl/maps/K2ouRTzmxDJTbkWX7)(바) : ★★★★ 하드쉐이킹으로 유명한 바인데, 김렛을 고든스진으로 해주셔서 비교가 쉽진 않았지만, 훌륭했다.  
 [Kunisuke Coffee](https://goo.gl/maps/RHux2faYqFrgKZG7A)(카페) : ★★★☆ 츠키지 시장에 간 김에 들른 카페. 맛도 좋고, 인테리어도 굉장히 재미지다.  
 [이마카츠 긴자점](https://goo.gl/maps/fma71yZNiSnbFVJZ8) : ★★★☆ 줄에 비해 제작이 굉장히 느리다. 닭안심 카츠.  
 [라 부티크 드 조엘 로부숑](https://goo.gl/maps/38CLUYAUdjJENH2u7)(베이커리) : ★★★☆ 빵이 대체로 훌륭하다. 크레페를 이용한 요리도 굉장히 색다르고 맛있다.  
-[Tachigui Sushi Akira](https://goo.gl/maps/PaG49hgM1BzgUuMM9) : ? 예약 없이 오로지 줄서기만으로 먹는 스시집이라 예약 실패 시 시도해보고 싶다. 신바시에 1호점, 스키지시장에 2호점  
 [Mori Bar](https://goo.gl/maps/cqxr5hY2eqH1Pfvp9)(바) : ? 스터 장인  
 
 
